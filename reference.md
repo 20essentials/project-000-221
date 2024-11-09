@@ -1,0 +1,2 @@
+- **Reference ⬇️**
+  - [PATTERN TEXTURE](https://www.vecteezy.com/vector-art/2883081-seamless-pattern-zodiac-sign-of-the-beautiful-bright-stars-on-c)
